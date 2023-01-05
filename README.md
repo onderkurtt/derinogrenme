@@ -1,0 +1,3 @@
+# derinogrenme
+
+haydi başlayalım
